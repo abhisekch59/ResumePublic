@@ -1,2 +1,2 @@
 # ResumePublic
-Resume (Public Version)
+Resume (Public Version - removed my personal email ID and phone no., please reach out to me via LinkedIn [here](https://linkedin.com/in/abhisek-chaudhuri "Abhisek Chaudhuri's LinkedIn Profile") )
